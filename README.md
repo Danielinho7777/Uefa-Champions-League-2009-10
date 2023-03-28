@@ -10,3 +10,4 @@ Samuel Eto'o se convirtió en el segundo jugador en ganar el torneo con 3 equipo
 [Resumen del torneo](https://i.ytimg.com/vi/AQKvk0kd5u8/maxresdefault.jpg)
 
 [Semifinal vs Barcelona](https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/10/01/11/jose-mourinho-inter-milan-barcelona.jpg?quality=75&width=1200&auto=webp)
+![Semifinal vs Barcelona](https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/10/01/11/jose-mourinho-inter-milan-barcelona.jpg?quality=75&width=1200&auto=webp)
