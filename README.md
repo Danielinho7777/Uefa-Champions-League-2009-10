@@ -7,7 +7,6 @@ La final, disputada en el Estadio Santiago Bernabéu el 22 de mayo de 2010, prim
 **El máximo goleador de la edición fue Lionel Messi del Barcelona con 8 goles.
 Samuel Eto'o se convirtió en el segundo jugador en ganar el torneo con 3 equipos diferentes (Real Madrid, Barcelona, Inter) después de Clarence Seedorf.**
 
-[Resumen del torneo](https://i.ytimg.com/vi/AQKvk0kd5u8/maxresdefault.jpg)
+![Resumen del torneo](https://i.ytimg.com/vi/AQKvk0kd5u8/maxresdefault.jpg)
 
-![Semifinal vs Barcelona](https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/10/01/11/jose-mourinho-inter-milan-barcelona.jpg?quality=75&width=1200&auto=webp)
 ![Semifinal vs Barcelona](https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/10/01/11/jose-mourinho-inter-milan-barcelona.jpg?quality=75&width=1200&auto=webp)
