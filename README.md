@@ -12,15 +12,11 @@ La final, disputada en el Estadio Santiago Bernabéu el 22 de mayo de 2010, prim
 ![Semifinal vs Barcelona](https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/10/01/11/jose-mourinho-inter-milan-barcelona.jpg?quality=75&width=1200&auto=webp)
 
 **Rivales**
-** Fase de grupos**
+
 * FC Barcelona
 * Rubin Kazan
 * Dinamo de Kiev
-** Octavos de final**
 * Chelsea
-** Cuartos de final**
 * CSKA Moscú
-** Semifinales**
 * FC Barcelona
-** Final**
 * Bayern Munich
